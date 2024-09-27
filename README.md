@@ -1,2 +1,2 @@
 # TinkleTime.github.io
-websitesball.com
+https://now.gg/
